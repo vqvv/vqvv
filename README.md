@@ -1,3 +1,3 @@
 <div align="center">
-        <img alt="logo" src="https://cdn.heroin.gg/h3d.gif">
+        <img alt="logo" src="https://heroin.gg/cock.gif">
 </div>
