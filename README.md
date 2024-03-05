@@ -1,3 +1,3 @@
 <div align="center">
-        <img src="https://please.kys.lol/uploads/a98c709e8f.png">
+        <img src="https://images3.alphacoders.com/230/230855.jpg">
 </div>
